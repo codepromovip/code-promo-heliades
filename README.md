@@ -7,10 +7,10 @@ Vous rêvez de partir en vacances sans vous ruiner ? Le code promo Heliades est 
 ------------------------
 
 ### Code promo Héliades : 70€ de réduction sur vos frais de dossier
-Code promo Héliades pour obtenir 70€ de réduction : [Voir le code : HELIREDUC](https://www.club-reduc.com/codepromoheliades "code promo heliades")
+Code promo Héliades pour obtenir 70€ de réduction : [Voir le code : HELIREDUC cliquez ici pour activer la promo](https://www.club-reduc.com/codepromoheliades "code promo heliades")
 
 ### Code promo Héliades de 5% sur la destination BAHAMAS
-Code promo Héliades de 5% sur les séjours au Bahamas : [Voir le code : BAHAMAS](https://www.club-reduc.com/codepromoheliades "code promo heliades")
+Code promo Héliades de 5% sur les séjours au Bahamas : [Voir le code : BAHAMAS cliquez ici pour activer la promo](https://www.club-reduc.com/codepromoheliades "code promo heliades")
 
 ### Dernière minute : Économisez jusqu'à 24%
 Découvrez les ventes de dernière minute jusqu'à 24% de réduction : [Voir l'offre](https://www.club-reduc.com/codepromoheliades "promotion heliades")
